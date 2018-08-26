@@ -16,13 +16,9 @@ Consumerism, however, is a subtle demon, and it may not be readily exorcised thr
 
 ### Consumerism and the Restlessness of Organization
 
-William Cavanaugh 
+One resource for a thicker account of consumerism can be found in William Cavanaugh's *Being Consumed: Economics and Christian Desire.* In that work, Cavanaugh suggests that “What really characterizes consumer culture is not attachment to things but detachment. People do not hoard money; they spend it. People do not cling to things; they discard them and buy other things.” For Cavanaugh, our problem is not that we cling too tightly to things---it is rather than we are perpetually dissatisfied with them and detached from them. True consumerists do not hoard their things, but rather perpetually discard them and buy anew. This is why, for Cavanaugh, "it is not simply buying but shopping that is the heart of consumerism. Buying brings a temporary halt to the restlessness that typifies consumerism.”
 
-Cavanaugh:
 
-“What really characterizes consumer culture is not attachment to things but detachment. People do not hoard money; they spend it. People do not cling to things; they discard them and buy other things.”  
-
-“Consumerism is not so much about having more as it is about having something else; that’s why it is not simply buying but shopping that is the heart of consumerism. Buying brings a temporary halt to the restlessness that typifies consumerism.”
 
 Kondo selling boxes: https://www.fastcompany.com/90206505/marie-kondo-got-you-to-toss-your-stuff-now-she-sells-89-boxes
 
