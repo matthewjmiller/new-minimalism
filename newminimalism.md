@@ -1,12 +1,12 @@
-## new minimalism
+## Living in a Holy Clutter
 
-I felt the bulk of all my worldly goods quite forcefully last month when I almost tipped over the two-ton moving truck that contained them. After sweating my way through the narrow streets of St. Louis and riding the brakes down the slopes of the Ozarks, the most frightening moment of my time as amateur trucker came in the final 200 feet, on the private drive leading to our new house. Our narrow, sloping gravel driveway terminates by curving between a ravine and a drainage ditch at a point that, as it turns out, is not wide enough for the largest truck you can get from Budget. Accordingly, I rolled one set of the rear tires through the ditch, tearing a large chunk out of the lawn and causing the fully loaded truck, and my heart, to buck and twist like a leaping orca. 
+I felt the bulk of all my worldly goods quite forcefully last month when I almost tipped over the two-ton moving truck that contained them. After sweating my way through the narrow streets of St. Louis and keeping my foot to the floor in order to keep up with flow of traffic on the highway, the most frightening moment of my time as amateur trucker came in the final 200 feet, right outside our new house. We live in a rural area of Ozarks in southern Missouri, and our home rests on the side of what we generously term a mountain. Our narrow, sloping gravel driveway terminates by curving between a ravine and a drainage ditch at a point that, as it turns out, is not wide enough for the largest truck you can get from Budget. Accordingly, as I pulled up to the house, I rolled one set of the rear tires through the ditch, tearing a large chunk out of the lawn and causing the fully loaded truck, and my heart, to buck and twist like a leaping orca. 
 
-I might have avoided this near-disaster more easily if I had followed the advice of Marie Kondo and the minimalist lifestyle movement. Instead of filling a truck with boxes of paperbacks, children's toys, and kitchen utensils, my family should have tossed everything we don't truly love. In addition to giving away some of the bulkiest and least useful of our possessions---our $50 piano, an old bedframe, homemade tomato cages---we should have effected a more radical purge. If we had done so, we would be happier, less stressed, and more spiritual. More importantly, we could have rented the much less terrifying 16-foot truck. 
+I might have avoided this near-disaster more easily if I had followed the advice of Marie Kondo and the minimalist lifestyle movement. Instead of filling a truck with boxes of paperbacks, children's toys, and kitchen utensils, my family should have tossed everything we don't truly love. In addition to giving away some of the bulkiest and least useful of our possessions---our $50 thirdhand piano, an old bedframe, homemade tomato cages---we should have effected a more radical purge. If we had done so, we would be happier, less stressed, and more spiritual. More importantly, we could have rented the much less terrifying 16-foot truck. 
 
 ### Minimalism as Anti-Consumerism
 
-Kondo and other advocates of the less-is-more lifestyle offer their followers a self-help program tinged with the moral concern of anti-consumerist literature. Rather than simply offering to make me happier, it offers to make me better---this by helping me resist the corrosive effects of consumerism. It is not entirely novel in that program. Anti-consumerism goes back arguably as far as the works of Henry David Thoreau and John Ruskin in the 19th century, and the 20th and 21st centuries have seen one new attack on consumerism after another, from Naomi Klein's critique of advertising to the back-to-the-land proposals of new agrarian thinkers. Christians have frequently denounced consumerism as well, from [Pope Francis](http://www.catholicherald.co.uk/news/2013/08/05/pope-denounces-comsumerism-as-a-poison/) to Reformed theologian [Carl Trueman](http://qideas.org/articles/consumerism-and-the-church-an-interview-with-carl-trueman/).
+Kondo and other advocates of the less-is-more lifestyle offer their followers a self-help program tinged with the moral concern of anti-consumerist literature. Rather than simply offering to make me happier, it offers to make me better---this by helping me resist the corrosive effects of consumerism. It is not entirely novel in that program. Anti-consumerism goes back arguably as far as the works of Henry David Thoreau and John Ruskin in the 19th century, and the 20th and 21st centuries have seen one new attack on consumerism after another, from Naomi Klein's critique of advertising to the back-to-the-land proposals of new agrarian thinkers. Christians have frequently denounced consumerism as well, from [popes](http://www.catholicherald.co.uk/news/2013/08/05/pope-denounces-comsumerism-as-a-poison/) to [Reformed theologians](http://qideas.org/articles/consumerism-and-the-church-an-interview-with-carl-trueman/) and many other groups besides.
 
 Minimalism offers its acolytes a means of self-improvement through organization, but it also inflects that program of personal benefits with social benefits: minimalists consume less and waste less, and thus contribute to increasing sustainability and social equity. The design group New Minimalism describes their practice as supporting ["sustainable, intentional living"](http://www.newminimalism.com/the-book/). So I not only avoid the bulk of an over-loaded moving truck, on this account, but I avoid damaging the earth with excess consumption of resources. 
 
@@ -18,50 +18,22 @@ Consumerism, however, is a subtle demon, and it may not be readily exorcised thr
 
 One resource for a thicker account of consumerism can be found in William Cavanaugh's *Being Consumed: Economics and Christian Desire.* In that work, Cavanaugh suggests that “What really characterizes consumer culture is not attachment to things but detachment. People do not hoard money; they spend it. People do not cling to things; they discard them and buy other things.” For Cavanaugh, our problem is not that we cling too tightly to things---it is rather than we are perpetually dissatisfied with them and detached from them. True consumerists do not hoard their things, but rather perpetually discard them and buy anew. This is why, for Cavanaugh, "it is not simply buying but shopping that is the heart of consumerism. Buying brings a temporary halt to the restlessness that typifies consumerism.”
 
-Cavanaugh understands consumerism as "a type of spirituality," a means of pursuing meaning and identity. We who engage in the consumeristic pursuit are not mere crass materialists; rather, we seek connection and identity through the search for newer and better stuff. We become Apple superfans or join the Patagonia family. Products created through Kickstarter or other consumer-backed platforms highlight with special clarity, as a project's "backers" root for the success of a product much as they might for their favorite football team. 
+Cavanaugh understands consumerism as "a type of spirituality," a means of pursuing meaning and identity. We who engage in the consumeristic pursuit are not mere crass materialists; rather, we seek connection and identity through the search for newer and better stuff. We become Apple superfans or join the Patagonia family. Products created through Kickstarter or other consumer-backed platforms highlight with special clarity, as a project's "backers" root for the success of a product much as they might for their favorite baseball team. 
 
 So we can define consumerism as a spirituality especially characterized by a detachment from particular material goods and a restless search for new experiences and identities. Cavanaugh does not mean by this definition to defend consumerism, as if all spiritualities have equal value. Rather, he sides with Augustine and the Christian tradition, for whom "the solution to our dissatisfaction is not the continuous search for new things but a turn toward the only One who can truly satisfy our desires." Rather than detaching from things in order to search out new ones, Christians should be *attached* to things, as long as such attachments ultimately point to God. For Augustine, Christians can achieve such a properly ordered attachment: in *De doctrina Christiana,* he cites Paul's expressed desire in the Epistle to Philemon to "enjoy [him] in the Lord" (Phi. 20). Augustine comments, in the translation by R.P.H. Green, "if he had not added the words 'in the Lord,' and just said 'I shall enjoy you,' he would have been setting his hopes of happiness on Philemon." A properly ordered attachment to things or people, however, leads to the enjoyment of the One who made them. 
 
-Christians must resist consumerism, then, not because of its grasping attachment to material things, but in fact because of its *detachment* from a properly ordered attachment. Consumerist spirituality encourages a restless detachment from our possessions when we ought to be *resting* in attachment to them, learning from them how to love God. 
+Christians must resist consumerism, then, not because of its grasping attachment to material things, but in fact because of its *detachment* from a properly ordered attachment. Consumerist spirituality encourages a restless detachment from our possessions when we ought to be *resting* in attachment to them, learning from them how to love God and delight in him. 
 
-### The Restlessness of Organization
+### Minimalism and the Self
 
 Can minimalism, then, help Christians put off the detachment of consumerism? Kondo's approach to de-cluttering, in particular, has more going for it than one might expect within a Christian understanding of materiality. She encourages the potential de-clutterer to take each possession in her hands and perform a kind of self-examination, intuiting whether that object still "sparks joy" in her. Anything that still ignites such a spark can remain; everything else should be discarded. Kondo therefore aims not so much at minimalism *per se* but at a life and a home in which every possession is truly wanted. 
 
+Encouraging us to take joy in those things we already have could be understood as something like the virtue of contentment. In the face of consumerism's attempt to keep us perpetually dissatisfied with everything we own---all the better to encourage us to pursue new things---Kondo wants us to experience joy when we look around our homes. If she does not go on to link that joy to *enjoyment* of the Creator God, we should not fault her for being an organizational consultant and not a theologian. It would seem that something redemptive clings in her method here.
 
+As a response to consumerism, however, Kondo's de-cluttering remains steadfastly individualistic and thus insufficient. The process of examining whether objects spark joy locates that joy in one place alone: the heart of the owner. We are to give no thought to if or how these objects help us to love our neighbors, but only their emotional resonance for ourselves. It may be that keeping that chipped mug around helps you offer hospitality to a guest, or that wearing that tie you don't care for anymore helps you serve your students or clients better. It may be that your children need a few of those plastic toys. Kondo's method does not account for these *social* implications of our possessions.
 
+More importantly, minimalism's relationship to *disposal* verges on undoing the anti-consumerist impulse of the movement. Kondo goes so far as to recommend tearing your favorite pages out of books and throwing the rest away, and in general encourages her followers to toss possessions they no longer love without a second thought. Unfortunately, in our consumerist society, even disposing of things becomes complicated. [Plastic waste has become an environmental catastrophe](https://www.nationalgeographic.com/magazine/2018/06/plastic-planet-waste-pollution-trash-crisis/), and [global solid waste production has soared](http://www.latimes.com/world/global-development/la-fg-global-trash-20160422-20160421-snap-htmlstory.html#). Donating your goods to charity is no panacea, either: [even Goodwill struggles to keep up with the volume of cheaply made materials they receive](https://www.huffingtonpost.com/entry/what-does-goodwill-do-with-your-clothes_us_57e06b96e4b0071a6e092352). These social effects don't mean that we should never throw anything away, but disposal requires careful consideration. Instead of trashing our unwanted possessions, we should consider how they can be repurposed or passed along: adapting old pots and pans into planters, or handing down clothing to our cousins. The minimalist philosophy does not encourage re-use, which does nothing to reduce clutter or simplify your home. But this may be precisely what loving our neighbors with our stuff requires.
 
+Ultimately, minimalism mirrors the restlessness of consumerism. Rather than making peace with the clutter that comes with repurposing and sharing your stuff, it pushes toward the clean, convenient, smooth experience of buying that one perfect object in the Apple store or IKEA. It disdains the patched up, the good enough, and the holy clutter of sharing our things with our neighbors. As such, it ultimately fails to be attached enough to the good things of this world and their reflection of the One who created all the odds and ends of this cluttered world.
 
-
-
-
-
-
-
-Kondo selling boxes: https://www.fastcompany.com/90206505/marie-kondo-got-you-to-toss-your-stuff-now-she-sells-89-boxes
-
-### Sparking Joy
-
-God likes matter, so it's appropriate for *stuff* to bring us joy
-
-Kondo's process
-
-Two cheers for keeping good stuff, not junk
-
-### My Decluttering, Your Cluttering
-
-Trash crisis
-
-Decluttering is ultimately an individual solution that may compound social problems
-
-### Living in a Holy Clutter
-
-Decluttering pushes toward the clean, convenient, smooth experience of buying the optimal goods on Amazon or IKEA
-
-Perhaps we ought instead to live in a holy clutter of patched up, good enough
-
-Garage sales, Nextdoor, trading with neighbors
-
-***
-
-https://www.theatlantic.com/entertainment/archive/2016/03/marie-kondo-and-the-privilege-of-clutter/475266/
+I hope that a few of those things that brought me to the brink of disaster in the moving truck can provide a means for me to love my neighbors, whether by sharing a tool or offering a cup of coffee. And in that hope, I won't be decluttering just yet. What I will be doing, should we move again, is hiring movers. I can't face the driveway again in that 26-foot truck.
