@@ -4,7 +4,7 @@ I felt the bulk of all my worldly goods quite forcefully last month when I almos
 
 I might have avoided this near-disaster more easily if I had followed the advice of Marie Kondo and the minimalist lifestyle movement. Instead of filling a truck with boxes of paperbacks, children's toys, and kitchen utensils, my family should have tossed everything we don't truly love. In addition to giving away some of the bulkiest and least useful of our possessions---our $50 piano, an old bedframe, homemade tomato cages---we should have effected a more radical purge. If we had done so, we would be happier, less stressed, and more spiritual. More importantly, we could have rented the much less terrifying 16-foot truck. 
 
-### heading
+### Minimalism as Anti-Consumerism
 
 Kondo and other advocates of the less-is-more lifestyle offer their followers a self-help program tinged with the moral concern of anti-consumerist literature. Rather than simply offering to make me happier, it offers to make me better---this by helping me resist the corrosive effects of consumerism. It is not entirely novel in that program. Anti-consumerism goes back arguably as far as the works of Henry David Thoreau and John Ruskin in the 19th century, and the 20th and 21st centuries have seen one new attack on consumerism after another, from Naomi Klein's critique of advertising to the back-to-the-land proposals of new agrarian thinkers. Christians have frequently denounced consumerism as well, from [Pope Francis](http://www.catholicherald.co.uk/news/2013/08/05/pope-denounces-comsumerism-as-a-poison/) to Reformed theologian [Carl Trueman](http://qideas.org/articles/consumerism-and-the-church-an-interview-with-carl-trueman/).
 
@@ -14,9 +14,24 @@ The minimalist movement does distinguish itself from other anti-consumerist prog
 
 Consumerism, however, is a subtle demon, and it may not be readily exorcised through the practice of what [*The New York Times* called "the oppressive gospel" of minimalism](https://www.nytimes.com/2016/07/31/magazine/the-oppressive-gospel-of-minimalism.html). The minimalism of Kondo and the de-clutterers may help individuals lessen consumeristic behaviors in their own lives, but it does not reckon with the spiritual effects of consumerism, nor its social effects. De-cluttering, then, is a practice both shallow and narrow, falling short of a fully formed Christian attitude toward the stuff that fills our lives and our moving trucks. Christians must aim for a richer account of consumption and possession, one that reckons more fully with how we shape God's creation through our getting, having, and disposing.
 
-### Consumerism and the Restlessness of Organization
+### Consumerism as Spirituality
 
 One resource for a thicker account of consumerism can be found in William Cavanaugh's *Being Consumed: Economics and Christian Desire.* In that work, Cavanaugh suggests that “What really characterizes consumer culture is not attachment to things but detachment. People do not hoard money; they spend it. People do not cling to things; they discard them and buy other things.” For Cavanaugh, our problem is not that we cling too tightly to things---it is rather than we are perpetually dissatisfied with them and detached from them. True consumerists do not hoard their things, but rather perpetually discard them and buy anew. This is why, for Cavanaugh, "it is not simply buying but shopping that is the heart of consumerism. Buying brings a temporary halt to the restlessness that typifies consumerism.”
+
+Cavanaugh understands consumerism as "a type of spirituality," a means of pursuing meaning and identity. We who engage in the consumeristic pursuit are not mere crass materialists; rather, we seek connection and identity through the search for newer and better stuff. We become Apple superfans or join the Patagonia family. Products created through Kickstarter or other consumer-backed platforms highlight with special clarity, as a project's "backers" root for the success of a product much as they might for their favorite football team. 
+
+So we can define consumerism as a spirituality especially characterized by a detachment from particular material goods and a restless search for new experiences and identities. Cavanaugh does not mean by this definition to defend consumerism, as if all spiritualities have equal value. Rather, he sides with Augustine and the Christian tradition, for whom "the solution to our dissatisfaction is not the continuous search for new things but a turn toward the only One who can truly satisfy our desires." Rather than detaching from things in order to search out new ones, Christians should be *attached* to things, as long as such attachments ultimately point to God. 
+
+### The Restlessness of Organization
+
+Our question 
+
+"In consumer culture, dissatisfaction and satisfaction cease to be opposites, for pleasure is not so much in the possession of things as their pursuit."
+
+**"The restlessness of consumerism causes us constantly to seek new material objects. For Augustine, on the other hand, the solution to our dissatisfaction is not the continuous search for new things but a turn toward the only One who can truly satisfy our desires. This does not require the rejection of all earthly things, but an ability to see that all things point to God."**
+
+
+
 
 
 
